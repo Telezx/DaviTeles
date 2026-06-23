@@ -43,8 +43,8 @@ Busco constantemente aprender novas tecnologias, desenvolver projetos práticos 
 
 ## 📫 Contato
 
-LinkedIn: (adicione seu LinkedIn)
+LinkedIn: www.linkedin.com/in/davi-teles-143435260
 
-Email: (adicione seu email)
+Email: davitelesdasilva40@gmail.com
 
-GitHub: https://github.com/(seu-usuario)
+GitHub: https://github.com/Telezx
